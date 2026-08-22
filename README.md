@@ -1,1 +1,0 @@
-# BIDT-Oral-Tirzepatide-Optimization
